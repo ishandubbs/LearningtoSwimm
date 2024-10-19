@@ -1,3 +1,1 @@
-Collaborators: Ishan Roy
-
-Made for beginner and advanced swimmers.
+Made for swimmers of all levels - beginner or advanced!
